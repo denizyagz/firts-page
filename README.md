@@ -1,1 +1,1 @@
-# firts-page
+https://denizyagz.github.io/firts-page/
